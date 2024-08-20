@@ -27,7 +27,6 @@ Recognized with the Ace of Initiative Award and Impact Award at Chigisoft for my
 
 Email: [precious.anizoba1@gmail.com](mailto:precious.anizoba1@gmail.com).
 
-LinkedIn: [Precious Anizoba](https://www.linkedin.com/in/precious-anizoba-2b640617a/).
 
 Portfolio: [preciousanizoba](https://preciousanizoba.vzy.io/).
 
